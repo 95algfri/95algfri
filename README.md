@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Artificial Intelligent, ML, and Data Analyst repository for learning and portofolio 
 - 📫 How to reach me : instagram @95algifari facebook @Imam Al Gifari
 - 😄 Pronouns: He
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: in real life i'm like Sportgames like running, Swimming and Simple Martial Art basic like judo and self taught boxing. Beside thats i have another hobby like drawing and Foreign language learning primarily English.
 
 <!---
 95algfri/95algfri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
